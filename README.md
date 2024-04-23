@@ -2,7 +2,7 @@
 - 👀 I’m interested in trains, buses & trams
 - 🌱 I’m currently learning in high school
 - 📫 How to reach me contact me in any way and i should respond
-- 😄 Pronouns: He/They
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I an a bus conductor and guard on a railway.
 
 <!---
